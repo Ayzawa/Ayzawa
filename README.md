@@ -11,7 +11,7 @@ Fascinado por tecnologia, desenvolvimento e comunicação.
 💬 &#160; Pergunte-me sobre os mais variados assuntos, se eu não souber lhe responder, encontraremos a solução juntos <br>
 📨 &#160; <strong>Conecte-se comigo:</strong> llima.ffabio@gmail.com <br>
 😄 &#160; Pronomes: ele/dele <br>
-⚡ &#160; Curiosidade: Gosto de fazer trilhas e acampar <br>
+⚡ &#160; Curiosidade: Gosto de filmes, séries, cinema, animes, rpg, jogos, tecnologia, fazer trilhas, acampar e etc... <br>
 
 <div align="center">
   <a href="https://github.com/Ayzawa">
